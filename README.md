@@ -143,4 +143,11 @@ LSK Address: 4790646544144884441L
 A jak nie chcecie wpłacać to nie musicie i można korzystać z bibliteki bez opłat i ograniczeń i tworzyć
 własne biznesy, własne banki , własne BAŃKI i własne kantory i wszystko.
 
+## Kontakt i info
+
+https://4programmers.net/Profile/57121
+https://4programmers.net/Forum/1431760
+
+
+
 Z Bogiem.
